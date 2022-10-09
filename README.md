@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @HeyyyPotatosLove
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning Englisch
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Send Me A Discord Request Moonlight<3#9888
 
 <!---
